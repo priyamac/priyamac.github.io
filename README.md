@@ -1,1 +1,0 @@
-# priyamac.github.io
